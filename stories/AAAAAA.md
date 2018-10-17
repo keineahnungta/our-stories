@@ -7,6 +7,7 @@
 > I really hope you enjoy thisو ~~motherfukers~~.
 
 
-Продолжение следует (угрожающим тоном)... 
+Продолжение следует (угрожающим тоном)...
+ 
 ---
 ### Эта история участвует в [конкурсе](http://mystory.hexlet.io/) от [Хекслета](hhttps://github.com/keineahnungta/our-stories/blob/master/stories/AAAAAA.md) и поставьте Star в верхнем правом углу. Спасибо!
